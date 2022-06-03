@@ -9,3 +9,4 @@ Mahmodelsayedmahmoud/Mahmodelsayedmahmoud is a ✨ special ✨ repository becaus
 You can click the Preview link to take a look at your changes.
 --->
 I am interested in the science of jerking and the science of jerking with computer data. I hope for your help. Thank you very much
+I am interested in the science of artificial intelligence and computer science, please help and thank you very much
